@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Amir
-- 👀 I’m interested in politics, economya and language learnign
+- 👀 I’m interested in politics, economy and language learnign
 - 🌱 I’m currently learning statistics 
 - 📫 How to reach me @ amirreza.abbasi08@gmail.com
 
